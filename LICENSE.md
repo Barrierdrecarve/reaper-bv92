@@ -1,4 +1,4 @@
-# 
+# Ultimate DaVinci Resolve for PC executor is the best DaVinci Resolve for PC executor with recording and color-grading. Safe, reliable, and optimized for maximum performance.
 
 
 
